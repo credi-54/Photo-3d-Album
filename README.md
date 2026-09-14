@@ -209,3 +209,6 @@ Photo! 3D Album is the full free version, offering all features and updates with
 ---
 
 Start creating your stunning 3D photo galleries with Photo! 3D Album today!
+
+---
+**Last updated:** 2026-09-14 18:56:52 UTC
